@@ -1,3 +1,3 @@
-# open internet explorer
+# open internet explorer.
 
-IEを指定したサイズで開く
+IE繧呈欠螳壹＠縺溘し繧､繧ｺ縺ｧ髢九￥
